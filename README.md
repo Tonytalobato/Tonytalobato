@@ -1,0 +1,3 @@
+# Tonytalobato.github.io
+La cabeza me explota, siento frío y desesperación pero...
+Rendirse no es la opción, hay que seguir a ver si esto funciona como yo quiero.
